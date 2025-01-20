@@ -12,7 +12,8 @@ Research report on the <a href=https://marketresearchcommunity.com/industrial-ve
  <li>3  A short outline of the market segmentation</li>
 </ul>
 <strong>Get a Sample Copy of Industrial Vending Machines Market @ </b></strong><a href=https://marketresearchcommunity.com/sample-request/?rid=1005><u>https://marketresearchcommunity.com/sample-request/?rid=1005</u></a>
-
+ <li>3  A short outline of the market segmentation</li>
+</ul>
 <strong>Key Players:</strong> 
 SupplyPro, Inc., SupplyPoint, CribMaster,CMT Industrial Solutions, Brammers , Apex Industrial Technologies LLC, AutoCrib, Inc , Fastenal Company ,IVM Ltd, Silkron
 
